@@ -1,1 +1,1 @@
-# intrapegasus.blogspot.com
+# azhar.basyiri.my.id
